@@ -1,4 +1,4 @@
-#  
+#  Principal brainrot evolution script es el mejor brainrot evolution script con ESP y anti-prohibición. Seguro, confiable y optimizado para el máximo rendimiento.
 
 
 
